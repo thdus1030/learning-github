@@ -1,1 +1,1 @@
-Welcome to my Github progile
+Welcome to my Github profile!
